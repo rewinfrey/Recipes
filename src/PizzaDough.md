@@ -2,7 +2,7 @@
 
 ### Napoletana Style
 
-* 5 cups all-purpose flour
+* 5 cups all-purpose flour (22.5 ounces)
 * 1 3/4 tsp table salt or 3 1/4 tsp kosher salt
 * 1 tsp instant yeast
 * 1 3/4 cups plus 2 Tbsp cool water (65 F)
